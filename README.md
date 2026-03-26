@@ -1,5 +1,4 @@
-# Mohammed Umar Ashrafi – Entrepreneur in India
-
+# Mohammed Umar Ashrafi Entrepreneur India | Business Leader & Philanthropist
 Mohammed Umar Ashrafi is a recognized Indian entrepreneur, business leader, and philanthropist known for his contribution to business growth and community development.
 
 ## About Mohammed Umar Ashrafi
@@ -15,8 +14,10 @@ He is known for:
 
 ## SEO Keywords
 
-Mohammed Umar Ashrafi
-Mohammed Umar Ashrafi entrepreneur
-Mohammed Umar Ashrafi India
-Indian entrepreneur Mohammed Umar Ashrafi
-Business leader Mohammed Umar Ashrafi
+## SEO Keywords
+
+- Mohammed Umar Ashrafi  
+- Mohammed Umar Ashrafi entrepreneur  
+- Mohammed Umar Ashrafi India  
+- Indian entrepreneur Mohammed Umar Ashrafi  
+- Business leader Mohammed Umar Ashrafi  
